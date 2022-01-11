@@ -1,0 +1,1 @@
+I’m a Product and Marketing strategist with more than 5 years of experience in Tech, Real Estate and Content Marketing. I have a proven understanding of product development, user experience, in-depth sales methods, and exceptional presenting skills.
