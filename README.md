@@ -1,1 +1,5 @@
-I’m a Product and Marketing strategist with more than 5 years of experience in Tech, Real Estate and Content Marketing. I have a proven understanding of product development, user experience, in-depth sales methods, and exceptional presenting skills.
+I specialize in designing and developing user interfaces and digital products. I don’t restrict myself to design. The blend of design, user experience, marketing, and business is where I feel I excel. A proper executed product design should translate into economic value for your business.
+HTML (Professional)
+CSS (Professional)
+Phtoshop (Proficient)
+Corel Dray (Professional)
